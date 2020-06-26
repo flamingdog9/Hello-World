@@ -13,4 +13,5 @@ I am the God or Creator of this site Mia but you may only refer to me as Your Ma
 
 1. Have fun
 2. Leave room and time for yourself evry once and a while you're worth it
+ 
  ¯\_(ツ)_/¯
